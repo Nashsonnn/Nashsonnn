@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Nashson
 - 👀 I’m interested in Computers and WebDesigning stuffs
 - 🌱 I’m currently learning WebDesigning ( JavaScript )
-- 💞️ I’m looking to collaborate on Nothing For Now
+- 💞️ I’m looking to collaborate on Nothing For Now!
 - 📫 How to reach me @nashsongurung ( Instagram )
 - 😄 Pronouns: he/him
 
